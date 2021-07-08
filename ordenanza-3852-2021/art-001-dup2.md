@@ -1,0 +1,3 @@
+ARTICULO 1º: Las tierras que constituyen el Cementerio de la Ciudad de Magdalena y B. Bavio, pertenecen al dominio municipal.
+En consecuencia a los particulares no pueden invocar sobre sepulturas otros derechos de los que derivan del acto administrativo que se les otorgo sin que ningún caso tales actos administrativos puedan importar la enajenación.
+La Municipalidad ejercerá plenamente el poder de policía mortuoria no solo dentro del perímetro del cementerio, sino también respecto de todas aquellas actividades, operaciones o servicios que se vinculen de manera directa o indirecta por el Cementerio y el traslado, custodia, conservación y cremación de cadáveres.-
