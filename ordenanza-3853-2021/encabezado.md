@@ -1,0 +1,19 @@
+Ordenanza Nº3853/21
+Ordenanza Nº 3853/21
+Magdalena, 21/04/2021
+VISTO:
+La Ley Nacional Nº 26348 que fija el marco normativo para automotores abandonados,, perdidos, decomisados o secuestrados y la Ley Provincial Nº 14547 que fija el marco normativo a los fines de agilizar los procedimientos de disposición de vehículos que se encuentran en los depósitos municipales procurando de esta forma la liberación y descontaminación de los predios ocupados, y
+CONSIDERANDO:
+Que la mencionada Ley Provincial N° 14547 autoriza a los Municipios a disponer de los vehículos secuestrados en depósitos municipales y los faculta a realizar la compactación, afectación y subasta de los mismos ingresando su producido al patrimonio municipal.
+Que el espíritu de la norma aludida fue el de dar respuesta a la realidad que presentan los Municipios que componen la Provincia de Buenos Aires, en cuanto a la inadecuada acumulación de vehículos secuestrados por distintas contravenciones y falta de documentación.
+Que el artículo 1° de la citada norma establece que se aplica la misma a los vehículos que se encuentren “en depósitos municipales como consecuencia de infracciones de tránsito o faltas, cuya aplicación corresponda a los Municipios de acuerdo con la legislación vigente, o por haber sido retirados de la vía púbica por encontrarse en estado de deterioro, inmovilidad o abandono”.
+Que en los artículos 7º, 8º, y 9º respectivamente de la mencionada ley, se establece que aquellos vehículos aptos para rodar podrán ser afectados al Municipio, previa pericia en las plantas verificadoras habilitadas, a fin de establecer la originalidad de sus codificaciones identificatorias y, además, a disponer la subasta de los vehículos, ingresando su producido al patrimonio municipal, y a ceder los rodados para su uso a entidades de bien público.
+Que en el último párrafo del artículo 6º del citado texto legal también autoriza ante el caso de que la notificación en el domicilio del titular hubiere resultado negativa, a notificar mediante publicación de edictos por un (1) día en el Boletín Oficial y en un diario de la jurisdicción que corresponda, con los datos de la unidad afectada, y los apercibimientos indicados.
+Que en el artículo 7º de la ley, se establece que vencidos los plazos previstos y no se presentare el titular registral o los terceros interesados, se considerará que el vehículo ha sido abandonado; y en este supuesto, la Autoridad de Aplicación estará facultada para iniciar los procesos de afectación, subasta o compactación.
+Que el depósito de esta clase de rodados, destruidos y abandonados, implica la erogación de recursos económicos y humanos asignados a la custodia de bienes carentes de valor económico y/o de interés para aquellos que pudieren tener derechos sobre los mismos.
+Que la legislación vigente y la situación descripta resultan congruentes con la necesidad de retirar en forma inmediata estos rodados del predio en que se encuentren depositados,
+Que el Decreto Ley N° 6769/58 (Ley Orgánica de las Municipalidades) determina las competencias del Departamento Ejecutivo y Concejo Deliberante, siendo de destacar entre las de este último, las mencionadas en su Artículo 25º que establece en forma genérica los conceptos a que deben responder las Ordenanzas: ornato, sanidad, asistencia social, seguridad, moralidad, cultura, educación, protección, fomento, conservación y demás estimaciones encuadradas en su competencia constitucional, que coordinen con las atribuciones provinciales y nacionales.
+Que las necesidades locales y las particularidades de cada Municipio aconsejan disponer de una reglamentación de dicha norma, ajustada a los requerimientos del cuidado ambiental y sanitario en los mencionados predios.
+POR ELLO
+EL HONORABLE CONCEJO DELIBERANTE, en uso de sus atribuciones sanciona la siguiente
+ORDENANZA
