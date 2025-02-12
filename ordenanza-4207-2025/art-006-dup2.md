@@ -1,0 +1,9 @@
+ARTÍCULO 6°: Comuníquese, regístrese, archívese.
+DADA EN LA SALA DE SESIONES DEL HONORABLE CONCEJO DELIBERANTE DE MAGDALENA, EL DÍA 15 DE MAYO DE 2024.
+Registrado bajo el Nº 4207/24
+Fdo.
+Prof. DANIELA PELUSO
+Presidente HCD
+Fdo.
+Prof. ERNESTO ADEMAR MONROY
+Secretario HCD
