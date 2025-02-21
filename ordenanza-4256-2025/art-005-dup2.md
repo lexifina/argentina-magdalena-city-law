@@ -1,0 +1,1 @@
+ARTICULO 5°: Autorícese al Departamento Ejecutivo a la venta directa de los lotes mencionados en el Anexo III del presente, ello en el marco del art. 159 inc. 3 f del Decreto Ley 6769/58, y a los que a futuro el Departamento Ejecutivo adquiera e incorpore a dicho Programa.
