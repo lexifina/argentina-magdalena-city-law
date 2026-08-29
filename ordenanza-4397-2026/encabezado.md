@@ -1,0 +1,17 @@
+Ordenanza Nº4397/26
+Ordenanza Nº 4397/26
+Magdalena, 03/06/2026
+V I S T O:
+El Expediente Letra L, Núm. 1312/25; el Decreto-Ley 9533/80 y el Decreto-Ley 6769/58 – Ley Orgánica de las Municipalidades– ;y
+CONSIDERANDO
+Que a fs. 1 se presenta el Sr. Eduardo Anastacio Llanos, DNI N° 13.541.898, vecino de esta ciudad, solicitando con fundamento en el Decreto-Ley 9533/80, la transmisión a su favor de un inmueble lindero a su propiedad, de dominio municipal.
+Que el peticionante manifiesta detentar la posesión del bien desde hace más de veinte (20) años, ejerciéndola en forma pública, pacífica, ininterrumpida, no viciosa y con ánimo de dueño.
+Que a fs. 3 la Dirección de Ingresos Públicos y Catastro informa que el inmueble identificado catastralmente como: Circunscripción I, Sección C, Manzana 255, Parcela 5D, Partida N° 24.851, Matrícula 23.428 (065), tiene como titular de dominio a la Municipalidad de Magdalena y se encuentra registrado como sobrante, con una superficie de 80,10 m2; acompañándose plano de mensura, cédula catastral, plancheta municipal e informes de dominio. Asimismo, se indica que el inmueble se encuentra parcialmente edificado y es utilizado por la familia del peticionante.
+Que el inmueble referido integra el dominio privado municipal y no se encuentra afectado al cumplimiento de fines públicos o estatales, no resultando necesario para el desarrollo9 de funciones propias de la administración municipal.
+Que a fs. 14 y 16 toma intervención la Dirección de Asesoría Letrada, informando que, conforme a la categoría que detenta el inmueble según la clasificación establecida por el Decreto-Ley 9533/80, no resulta procedente la aplicación del procedimiento previsto en el artículo 13 de dicha norma legal – reservado exclusivamente para las demasías superficiarias que revistan carácter de excedente fiscal –, aconsejando, a los fines de su transferencia a título gratuito – donación –, el cumplimiento de lo dispuesto por el artículo 56 de la Ley Orgánica de las Municipalidades.
+Que el Decreto-Ley 9533/80 regula el Régimen de Inmuebles de Dominio Municipal y Provincial, estableciendo en el Capítulo III del Título II las condiciones, recaudos y procedimientos a los que debería ajustarse las municipalidades para la enajenación de inmuebles.
+Que específicamente el artículo 7° de la citada norma dispone: “Las Municipalidades deberán disponer la venta de todos aquellos inmuebles de su dominio privado que no fueren necesarios para el cumplimiento de fines estatales (…)”; mientras que el artículo 25° establece: “Podrá efectuarse la transferencia en forma directa, en venta, permuta o donación, con la exclusión del régimen de subasta pública y previa determinación del estado ocupacional, cuando: (…) 3. Trate de fracciones fiscales, de cualquier origen, que resulten inadecuadas por sus características para su utilización independiente y solicite la compra un propietario lindero (…) 4. Lo requieran ocupantes que acrediten fehacientemente la erección de mejoras o construcciones permanentes con una antelación de tres (3) años a la fecha de la petición (…)”.
+Que conforme a lo establecido por el artículo 56 de la Ley Orgánica de las Municipalidades, las trasferencias a título gratuito de bienes municipales requieren el voto de los dos tercios del total de los miembros del Honorable Concejo Deliberante.
+Por todo ello
+EL HONORABLE CONCEJO DELIBERANTE, en uso de sus atribuciones sanciona la siguiente
+ORDENANZA
