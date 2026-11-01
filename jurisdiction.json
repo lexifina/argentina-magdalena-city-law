@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-magdalena",
+  "code": "AR-B-MAGDALENA",
+  "name": "Magdalena",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-magdalena-city-law",
+  "build": "built: municipal ordinances (193 ordinances, 193 versions) from https://sibom.slyt.gba.gob.ar/cities/77",
+  "language": "es",
+  "sources": 1
+}
